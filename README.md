@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **Rohitsaxena125@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1_PD-zTYYinv-C6E_9gUoZ6lwJfNKCZZy/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1OAciWbgtkEqt5ounEuc70lA_yGvlk1Wt/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
